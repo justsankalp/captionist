@@ -9,5 +9,6 @@
 
 # Contact
 
-sankalpkarthi[at]gmail[dot]com
-[LinkedIn](https://www.linkedin.com/in/sankalpkarthi/)
+Reach me @ sankalpkarthi[at]gmail[dot]com or [LinkedIn](https://www.linkedin.com/in/sankalpkarthi/).
+
+You can find me on [X](https://x.com/SankalpKarthi) too.
